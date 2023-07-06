@@ -1,4 +1,4 @@
-A control engineer in Suzhou Zhito Company, China.
+A PNC engineer.
 
 Interested in Automatic Driving Technology!!!
 
